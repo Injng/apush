@@ -1,0 +1,1 @@
+The [[Commonwealth System]] led to a large amount of transportation projects, leading to the creation of a **Transportation revolution**. Large amounts of charters were granted for the building of roads and canals. An example of this was the [[Erie Canal]], considered by many to be the first great engineering project of the United States.

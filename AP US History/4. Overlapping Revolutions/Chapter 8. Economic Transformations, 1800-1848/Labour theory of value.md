@@ -1,0 +1,1 @@
+Under the **labour theory of value**, the price of goods should reflect the labour required to make them. Furthermore, the profit from these goods should go primarily to the workers, not the factory owners or middlemen.
