@@ -1,1 +1,0 @@
-Considered to be the most important émigré mechanic, **Samuel Slater** came to America in 1789 after working for Richard Arkwright, the inventor of the most advanced British machinery for spinning cotton. He reproduced the machine in the United States, and set off the [[Industrial Revolution]] in America.

@@ -1,1 +1,0 @@
-The **cotton complex** was an economic system that developed in the first half of the 1800s binding together southern cotton productoin with northern industries. It also galvanized Southern planters to pour additional capital into land and re-vitalized the slave trade.

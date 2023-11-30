@@ -1,1 +1,0 @@
-In the Philadelphia region, the **Sellars family** produced remarkable inventors. They eventually founded the Franklin Institute in Philadelphia, which published journals and provided high school-level instruction in chemistry, math, and mechanical design.

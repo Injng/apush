@@ -1,1 +1,0 @@
-Similar to mercantilism, **neomercantilism** is a system of government-assisted economic development that encouraged entrepreneurs to enhance the public welfare through private economic initiatives.
