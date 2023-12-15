@@ -1,0 +1,8 @@
+- center in Brazil and the West Indies
+- an economic system that produced commodities for an international market
+	- products included sugar, tobacco, and rice
+- used plantation agriculture to exploit the labor with [[Slavery]]
+- England attracted to the profits of sugar plantations
+	- generated enormous wealth for Great Britain
+- slaves from the [[Middle Passage]]
+- trade flowed to [[New England]] ports, which were controlled by the British under the [[Navigation Acts]]
